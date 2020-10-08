@@ -1,1 +1,1 @@
- karuturishinchan21.github.io
+ https://karuturishinchan21.github.io
